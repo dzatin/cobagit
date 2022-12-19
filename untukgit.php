@@ -1,0 +1,2 @@
+nama : Aliya
+Alamat: Sumedang
